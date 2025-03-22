@@ -2,4 +2,4 @@
 Guide gps everyday life
 🪥
 :comb:
-🪞
+🪞 :hairbrush: 🧳 job
